@@ -1,2 +1,2 @@
 # hello-world
-I have a learning disability and cant figure out the normal tutorial
+Computer erase that entire personal log.
